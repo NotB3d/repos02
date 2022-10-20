@@ -1,3 +1,5 @@
->"¡A mi señal, ira y fuego!🔥" – Máximo Décimo Meridio.
+<!--¿Como estas?-->
+>"¡A mi señal, ira y fuego!🔥" – Máximo Décimo **Meridio.**
 >>Frase de la película
->>> "Gladiator"
+>>> # "Gladiator"
+<http://animeflv.com/>
